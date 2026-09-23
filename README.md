@@ -3,7 +3,7 @@
 
 - 🔭 I’m currently working on **Hooshmand Yad**
 
-- 📄 Know about my experiences [https://jobinja.ir/user/NG-7262771](https://jobinja.ir/user/NG-7262771)
+- 📄 Know about my experiences -> [https://jobinja.ir/user/NG-7262771](https://jobinja.ir/user/NG-7262771)
 
 - 👨‍🏫Teaching at Codeyad -> https://codeyad.com/masters/profile/mahan-iranfar
 
