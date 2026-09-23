@@ -5,6 +5,10 @@
 
 - 📄 Know about my experiences [https://jobinja.ir/user/NG-7262771](https://jobinja.ir/user/NG-7262771)
 
+- 👨‍🏫Teaching at Codeyad -> https://codeyad.com/masters/profile/mahan-iranfar
+
+- 👨‍🏫Teaching at Daneshjooyar -> www.daneshjooyar.com/teacher/user373808
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
